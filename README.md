@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Gowtham!
+# 👋 Hi, I'm Chitra!
 
 🎓 B.E. in Electronics and Communication Engineering  
 📍 Chennai, India  
